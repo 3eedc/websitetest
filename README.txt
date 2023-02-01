@@ -5,4 +5,3 @@ Free for personal and commercial use under the CCA 3.0 license (html5up.net/lice
 
 I MADE A WEBSITE
 SHOUTOUT TO MY HOMIES
-EXCLUDING AUSTIN JEROLD JAXSON RENEE AND AMBICKA
